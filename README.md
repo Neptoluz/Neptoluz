@@ -2,7 +2,7 @@
 - 👀 I’m interested in design and architecture
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on my online server
-- 📫 You can reach me via my assistants, at;
+- 📫 You can reach me via my friends, at;
         karma.forgecraft@gmail.com
         kate.forgecraft@gmail.com
 
